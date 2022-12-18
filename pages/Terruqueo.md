@@ -1,0 +1,2 @@
+- Abogados usan leguleyadas para justificar la ruin estrategia de deshumanizar a los manifestante mediante el [[Terruqueo]]
+  + [[César Nakazaki]] https://twitter.com/CesarNakazaki/status/1604155864218099712

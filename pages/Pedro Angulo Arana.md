@@ -1,0 +1,2 @@
+- Presidente del Consejo de Ministros durante de la dictadura de [[Dina Boluarte Zegarra]]
+-
