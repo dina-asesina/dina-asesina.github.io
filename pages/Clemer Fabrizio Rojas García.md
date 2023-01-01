@@ -1,0 +1,2 @@
+> "Mi hijo era estudiante de mecánica automotriz en Senati. Trabajábamos juntos en el arreglo de carros. Cuando salió, me dijo que no iba a ir a las manifestaciones, sino al mercado María Reina a ver a su mamá. Cuando llamé a su celular, una persona desconocida me respondió y me dijo que tenía una bala. Le habían perforado el hígado y riñón”.
+> — <cite>Reyder Rojas Jáuregui, padre de Clemer Rojas García</cite>

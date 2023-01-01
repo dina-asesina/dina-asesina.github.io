@@ -1,0 +1,2 @@
+> “Mi hijo José Luis Aguilar deja un niño de dos años. Para mantener a su familia trabajaba como cobrador, en el sector construcción y en cualquier oficio que pudiera. Esa tarde del 15 de diciembre estaba saliendo de trabajar y regresaba a pie por la ruta de siempre - nosotros vivimos cerquita del aeropuerto- y se encontró con la balacera. Le alcanzó una bala en la cabeza”.
+> — <cite>Edith Aguilar, madre de José Luis Aguilar Yucra</cite>

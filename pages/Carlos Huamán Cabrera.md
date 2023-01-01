@@ -1,0 +1,2 @@
+> “Mi hijo se encontraba en Chao (Virú) trabajando en una empresa de arándanos desde hace dos meses. Antes, trabajó en Lima. Era cantante de Ilusión Sensual, se dedicaba a la música y a su familia. Tenía un hijo de siete años y quería ganar un poco de dinero para construir su casa. Su necropsia dice que ha muerto de un disparo de bala en el pulmón. No que murió a pedradas en la manifestación”.
+> — <cite>Ausberto Huamán Medina, padre de Carlos Huamán Cabrera</cite>

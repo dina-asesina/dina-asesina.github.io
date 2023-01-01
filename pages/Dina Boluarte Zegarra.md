@@ -1,1 +1,37 @@
--
+- Gabinetes cómplices de las masacres
+  - Gabinete [[Pedro Angulo Arana]]
+    - [[Alberto Otárola Peñaranda]] en [[MINDEF]]
+    - [[César Cervantes Cárdenas]] en [[Ministerio del Interior]]
+    - [[José Tello Alfaro]] en [[MINJUS]]
+    - [[Grecia Rojas Ortiz]] en MIMP
+    - [[Alex Contreras Miranda]] en MEF
+    - [[Ana Cecilia Gervasi Díaz]] en RREE
+    - [[Nelly Paredes del Castillo]] en MIDAGRI
+    - [[Patricia Correa]] en MINEDU
+    - [[Rosa Gutiérrez Palomino]] en MINSA
+    - [[Sandra Belaunde Arnillas]] en [[MINPROD]]
+    - [[Hania Pérez de Cuéllar Lubienska]] en Vivienda
+    - [[Albina Ruiz Ríos]] en MINAM
+    - [[Luis Fernando Elguero González]] en MINCETUR
+    - [[Jair Pérez Brañez]] en MINCUL
+    - [[Óscar Vera Gargurevich]] en Ministerio de Energía y Minas
+    - [[Julio Javier Demartini Montes]] en MIDIS
+  - Gabinete [[Alberto Otárola Peñaranda]]
+    - [[Ana Cecilia Gervasi Díaz]] en [[RREE]]
+    - [[Jorge Luis Chávez Cresta]] en [[MINDEF]]
+    - [[Alex Contreras Miranda]] en [[MEF]]
+    - [[Víctor Eduardo Rojas Herrera]] en [[Ministerio del Interior]]
+    - [[José Tello Alfaro]] en [[MINJUS]]
+    - [[Óscar Becerra Tresierra]] en [[MINEDU]]
+    - [[Rosa Gutiérrez Palomino]] en MINSA
+    - [[Nelly Paredes del Castillo]] en MIDAGRI
+    - [[Eduardo Alonso García Birimisa]] en Ministerio de Trabajo
+    - [[Sandra Belaunde Arnillas]] en MINPROD
+    - [[Luis Fernando Helguero González]] en MINCETUR
+    - [[Óscar Vera Gargurevich]] en MINAM
+    - [[Paola Pierina Lazarte]] en MTC
+    - [[Hania Pérez de Cuéllar Lubienska]] en Vivienda
+    - [[Grecia Rojas Ortiz]] en Ministerio de la Mujer
+    - [[Albina Ruiz Ríos]] MINAM
+    - [[Leslie Urteaga Peña]] en MINCUL
+    - [[Julio Javier Demartini Montes]] en MIDIS

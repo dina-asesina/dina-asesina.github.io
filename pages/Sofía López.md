@@ -1,0 +1,1 @@
+Periodista del [[Diario Correo]]

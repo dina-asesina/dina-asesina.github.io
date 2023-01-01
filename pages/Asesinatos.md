@@ -1,5 +1,7 @@
+Lista de asesinatos perpetrados por la [[PNP]] y [[FFAA]] con la autorizacion de [[Dina Boluarte Zegarra]]
+
 | Fecha    | Región                | Asesinato                          | Edad | Contexto                                                                        |
-|----------|-----------------------|------------------------------------|------|---------------------------------------------------------------------------------|
+| -------- | --------------------- | ---------------------------------- | ---- | ------------------------------------------------------------------------------- |
 | 11/12/22 | Andahuaylas, Apurímac | [[Beckhan Romario Quispe Garfias]] | 18   | Traumatismo encéfalo craneano ocasionado por objeto contundente                 |
 | 11/12/22 | Andahuaylas, Apurímac | [[D. A. Q.]]                       | 15   | Herido por bala durante marcha                                                  |
 | 12/12/22 | Chincheros, Apurímac  | [[R. P. M. L.]]                    | 16   | Impacto de proyectil en el pecho                                                |
@@ -18,12 +20,14 @@
 | 15/12/22 | Huamanga, Ayacucho    | [[C. M. R. A.]]                    | 15   | Impacto de bala perdida cuando ayudaba a un herido afuera del aeropuerto        |
 | 16/12/22 | Pichanaqui, Junín     | [[J.W.T.C.]]                       | 17   | Registro pendiente                                                              |
 | 16/12/22 | Junín                 | [[Diego Galindo Vizcarra]]         | 45   |                                                                                 |
-| 16/12/22 | Junín                 | [[Ronaldo Fernando Barra Leyva]]   | 22   |                                                                                 |
-| 17/12/22 | Ayacucho              |                                    |      | Joven que ingresó herido tras protestas.                                        |
+| 16/12/22 | Junín                 | [[Rolando Fernando Barra Leyva]]   | 22   |                                                                                 |
+| 17/12/22 | Ayacucho              | [[Leonardo David Hancco Chaka]]    | 27   |                                                                                 |
+| 21/12/22 | Ayacucho              | [[Jhonatan Alarcón Galindo]]       | 19   |                                                                                 |
+| 19/12/22 | Chala, Arequipa       | [[Xavier Candamo Dasilva]]         | 30   |                                                                                 |
 
-
-https://larepublica.pe/politica/actualidad/2022/12/19/protestas-en-peru-las-nueve-victimas-de-la-represion-militar-en-ayacucho-dina-boluarte-ejercito-peruano-fuerzas-armadas-pnp/
-
+https://web.archive.org/web/20221220113549/https://larepublica.pe/politica/actualidad/2022/12/19/protestas-en-peru-las-nueve-victimas-de-la-represion-militar-en-ayacucho-dina-boluarte-ejercito-peruano-fuerzas-armadas-pnp/
 
 Sources:
-  + https://larepublica.pe/sociedad/2022/12/16/muertos-por-protestas-en-peru-cuantos-fallecidos-hay-por-el-paro-nacional-y-quienes-son-minsa/
+
+- https://larepublica.pe/sociedad/2022/12/16/muertos-por-protestas-en-peru-cuantos-fallecidos-hay-por-el-paro-nacional-y-quienes-son-minsa/
+- https://saludconlupa.com/noticias/los-muertos-de-un-pais-fracturado/

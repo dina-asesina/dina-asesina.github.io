@@ -1,0 +1,1 @@
+- Fujimorista y homofobico: https://twitter.com/WaykaPeru/status/1606005172018085888
