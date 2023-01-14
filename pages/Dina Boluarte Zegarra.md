@@ -1,3 +1,5 @@
+twitter:: https://twitter.com/dinaercilia
+
 - Gabinetes cómplices de las masacres
   - Gabinete [[Pedro Angulo Arana]]
     - [[Alberto Otárola Peñaranda]] en [[MINDEF]]

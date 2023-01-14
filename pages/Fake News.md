@@ -1,0 +1,3 @@
+- "Policia convulsionando". Usaron las imagenes de un desalojo del 2015 para criminalizar a los manifestantes
+  - [[Martha Chavez]] https://twitter.com/LaSalitadelSin/status/1612157214906531843
+-

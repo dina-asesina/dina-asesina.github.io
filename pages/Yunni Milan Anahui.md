@@ -1,0 +1,2 @@
+- > Nosotros vivimos cerca al aeropuerto, estabamos yendo a nuestra casa y [lo hirio] una bala perdida
+- https://twitter.com/tikapuka/status/1612581044699496450

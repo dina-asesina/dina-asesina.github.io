@@ -1,3 +1,1 @@
----
-homepage: https://diariocorreo.pe/
----
+homepage:: https://diariocorreo.pe/

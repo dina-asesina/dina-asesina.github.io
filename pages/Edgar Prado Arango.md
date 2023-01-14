@@ -7,3 +7,6 @@
 >
 > Un militar se instaló en una esquina y varios vecinos lo vieron disparar directo al cuerpo. **Edgar Wilfredo Prado Arango** (51), el padre de Sheyla, vivía apenas a media cuadra y vio a un joven que caía herido. Se propuso socorrerlo. [Un testigo vio que salió cubriéndose con una calamina, con la convicción de que solo disparaban perdigones. Error](https://larepublica.pe/sociedad/2022/12/16/ayacucho-mi-papa-solo-salio-a-defender-a-los-heridos-senala-una-menor-que-perdio-a-su-progenitor-en-protestas/). Una bala le llegó por la espalda mientras intentaba brindar auxilio.
 > No participaba en las **protestas.** Era un padre dedicado al transporte. Quiso brindar ayuda y terminó fulminado al frente de su vivienda.
+
+Hija pide justicia
+https://twitter.com/lalineape/status/1610792190908792834

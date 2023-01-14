@@ -31,3 +31,4 @@ Sources:
 
 - https://larepublica.pe/sociedad/2022/12/16/muertos-por-protestas-en-peru-cuantos-fallecidos-hay-por-el-paro-nacional-y-quienes-son-minsa/
 - https://saludconlupa.com/noticias/los-muertos-de-un-pais-fracturado/
+- https://ojo-publico.com/4045/un-memorial-los-adolescentes-y-jovenes-muertos-las-protestas

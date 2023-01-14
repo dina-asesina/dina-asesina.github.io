@@ -1,0 +1,2 @@
+- https://larepublica.pe/politica/actualidad/2023/01/13/protestas-remo-candia-era-un-lider-campesino-que-no-se-callaba-ante-las-injusticias-cusco-dina-boluarte-congreso-adelanto-de-elecciones/
+- https://wayka.pe/remo-el-dirigente-campesino-de-anta-que-no-le-tuvo-miedo-a-dina-boluarte/

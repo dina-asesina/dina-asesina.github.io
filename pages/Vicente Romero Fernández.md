@@ -1,0 +1,1 @@
+- https://www.infobae.com/peru/2023/01/14/vicente-romero-conoce-el-perfil-y-hoja-de-vida-del-nuevo-titular-del-ministerio-del-interior/

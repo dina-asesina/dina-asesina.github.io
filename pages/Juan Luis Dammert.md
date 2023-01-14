@@ -1,0 +1,2 @@
+- [[Terruqueo]] a los manifestantes, afirma que la toma de aeropuertos no puede ser espontanea, sin ninguna prueba. Tambien afirma que toda la protesta esta financiada por "economias informales e ilegales" https://www.noticiasser.pe/confluencias-tragicas
+-

@@ -1,3 +1,8 @@
-- [[Maritza Tomaylla Maucaylle]] (31)
-- [[Abril Alexandra Barreda Cisa]] (14)
--
+- Lista (incompleta) de los heridos
+  - [[Maritza Tomaylla Maucaylle]] (31)
+  - [[Abril Alexandra Barreda Cisa]] (14)
+  - [[Renato Sebastián Murillo Reyes]] (25)
+  - [[Yoel Lucano Ullilen]] (23)
+  - [[Aldis Charichi]]
+  - [[Rosalino Flores Valverde]]
+  -

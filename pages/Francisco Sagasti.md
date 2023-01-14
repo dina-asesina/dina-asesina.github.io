@@ -1,0 +1,2 @@
+- Exigia que el congreso vacara a [[Pedro Castillo]] por que "no distinguia entre el bien y el mal" https://twitter.com/aldo_pg88/status/1614286190714277891
+-
